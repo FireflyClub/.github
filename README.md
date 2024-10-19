@@ -1,1 +1,1 @@
-# .github
+# NO MORE GATEKEEP
